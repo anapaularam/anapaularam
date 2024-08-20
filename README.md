@@ -12,5 +12,5 @@ ramos.ana21@escola.pr.gov.br
 
 @anapaularam
 
-![](https://media.tenor.com/i711TDaTUAAAC/naruto.gif) 
+
   
